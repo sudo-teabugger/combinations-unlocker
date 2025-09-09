@@ -1,4 +1,4 @@
 # Watch it goooo.......
 Do you have a NASA computer?
-Do you hae to much sorage?
+Do you have to much storage?
 HERE YOU GO !!!
